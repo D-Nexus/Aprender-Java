@@ -1,1 +1,1 @@
-# Ejercicios de la Gekipedia de Ernesto: https://www.youtube.com/channel/UCeEW6PHNJlIwI-rKChmqqkw
+# Ejercicios de la Geekipedia De Ernesto: https://www.youtube.com/channel/UCeEW6PHNJlIwI-rKChmqqkw
